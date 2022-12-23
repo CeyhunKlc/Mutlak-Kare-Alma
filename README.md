@@ -1,0 +1,1 @@
+# Mutlak-Kare-Alma
